@@ -81,12 +81,12 @@ Una vez saludado al niño se dirigió a la puerta; su hija lo acompañaba. Al ll
 - Bueno, gracias por haber pasado a visitarnos. Me siento mal con que no te puedas quedar acá. Pero viste cómo se pone _el José_, siempre...
 - No hay problema hija, en serio. --la interrumpió Hilario. Ya nos volveremos a ver con más tiempo.
 
-Al decir estas palabras su boca se llenó de un extraño amargor. Nunca sabía cuándo sería "la próxima vez". Conocía su edad, sentía los dolores, le costaba respirar, sabía que la vida en el campo roba años. Pero ya no había más que hacer. Dio vuelta y desandó los pasos que lo habían conducido hacia el pequeño y descuidado rancho. Al pasar por los canastitos en la entrada no pudo resistirlo y se dio vuelta.
+Al decir estas palabras su boca se llenó de un extraño amargor. Nunca sabía cuándo sería "la próxima vez". Conocía su edad, sentía los dolores, le costaba respirar, sabía que la vida en el campo roba años. Pero ya no había más que hacer. Dio vuelta y desanduvo los pasos que lo habían conducido hacia el pequeño y descuidado rancho. Al pasar por al lado de los canastitos de la entrada no pudo resistirlo, se dio vuelta y dijo:
 
-- Quedarían lindas unas flores adentro de estos. Si algún día andan con tiempo...
+- Quedarían lindas unas flores adentro de estos canastitos. Si algún día andan con tiempo...
 - Sí papá, el fin de semana con tiempo me encargo.
 
-Así retomaba su camino Hilario. El destino era incierto. Lo único que sabía era que la próxima mañana debía volver a pararse frente al micro y esperar que haya un lugar para él. Llegó a Retiro. Buscó por un rato algún banco adentro en el cual pasar la noche. Una vez que lo encontró se acomodó, hizo una almohada con su abrigo, se quitó su sombrero y se echó a dormir.
+Así retomaba su camino Hilario. El destino era incierto. Lo único que sabía era que la próxima mañana debía volver a pararse frente al micro y esperar que haya un lugar para él. Llegó a Retiro. Buscó un rato algún banco adentro en el cual pasar la noche. Una vez que lo encontró se acomodó, hizo una almohada con su abrigo, se quitó su sombrero y se echó a dormir.
 
 -------------------------------
 
