@@ -11,7 +11,7 @@ Había sido dura la vida para don Hilario. Y a decir verdad aún lo era, ya pasa
 Ya se estaba haciendo la hora en que el ómnibus debía partir, así que Hilario retomó su labor. Nuevamente tomó su sombrero y acurrucó esas alitas como si la suerte de conseguir su tan ansiado lugar fuera directamente proporcional a la fuerza y al enrosque aplicado sobre ellas.
 
 - Vuelvo a molestarlo Don. Sé que es hora de que el _coletivo_ se marche. ¿Habrá un lugarcito pa' mí? --preguntó nuevamente Hilario
-- Que pena don Hilario. Hoy no hay lugar tampoco. Sabe que en época de vacaciones van todos los micros llenos. --contestó luciblemente apenado el chofer.
+- Que pena don Hilario. Hoy no hay lugar tampoco. Sabe que en época de vacaciones van todos los micros llenos. --contestó visiblemente apenado el chofer.
 - Ya lo sé; ya lo sé --la fuerza y el enrosque sobre las alitas de su sombrero habían ya cesado. Bueno, espero que sepa disculpar mi entrometimiento. Ya los voy a dejar en paz.
 
 Habíase dado vuelta Hilario y emprendido su regreso cuando el chofer le pegó el grito.
