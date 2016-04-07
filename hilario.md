@@ -81,7 +81,7 @@ Una vez saludado al niño se dirigió a la puerta; su hija lo acompañaba. Al ll
 - Bueno, gracias por haber pasado a visitarnos. Me siento mal con que no te puedas quedar acá. Pero viste cómo se pone _el José_, siempre...
 - No hay problema hija, en serio. --la interrumpió Hilario. Ya nos volveremos a ver con más tiempo.
 
-Al decir estas palabras su boca se llenó de un extraño amargor. Nunca sabía cuándo sería "la próxima vez". Conocía su edad, sentía los dolores, le costaba respirar, sabía que la vida en el campo te roba años. Pero ya no había más que hacer. Dio vuelta y desandó los pasos que lo habían conducido hacia el pequeño y descuidado rancho. Al pasar por los canastitos en la entrada no pudo resistirlo y se dio vuelta.
+Al decir estas palabras su boca se llenó de un extraño amargor. Nunca sabía cuándo sería "la próxima vez". Conocía su edad, sentía los dolores, le costaba respirar, sabía que la vida en el campo roba años. Pero ya no había más que hacer. Dio vuelta y desandó los pasos que lo habían conducido hacia el pequeño y descuidado rancho. Al pasar por los canastitos en la entrada no pudo resistirlo y se dio vuelta.
 
 - Quedarían lindas unas flores adentro de estos. Si algún día andan con tiempo...
 - Sí papá, el fin de semana con tiempo me encargo.
